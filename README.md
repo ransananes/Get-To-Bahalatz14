@@ -7,7 +7,4 @@ Get To Bahalatz (Escape the military police) - ואז פרוייקט נוסף ב
 https://play.google.com/store/apps/details?id=com.rsan.escapethemilitarypolice
 
 
-פרוייקט נוסף - 3די - כרגע בעיכוב בעקבות בניית מודלים בבלנדר
-
-![image](https://i.ibb.co/QFt32rJ/ss-01.png)
 </p>
